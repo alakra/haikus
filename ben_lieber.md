@@ -1,0 +1,3 @@
+    Laid back programmer
+    With my mind on my code and ...
+    Meh, I'm drinking tea
