@@ -1,3 +1,3 @@
     Whole and good
-    Ready to move forward
-    I'm blessed by my family
+    Perfect gentleman
+    Is blessed by family
