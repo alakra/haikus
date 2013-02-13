@@ -1,3 +1,7 @@
+    Harbinger of trivia
+    Inserts explitives with feeling
+    Bad dog, no biscuit
+
     Nitpicky bastard
     Won't accept nonstandard lines
     Is it still winter?
