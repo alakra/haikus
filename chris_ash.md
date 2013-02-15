@@ -1,3 +1,3 @@
     Diet coke fiend
     Cheerleaders are real?
-    Fuck the suburbs, mate
+    Fuck off to the suburbs, mate
